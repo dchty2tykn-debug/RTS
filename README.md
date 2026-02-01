@@ -1,2 +1,1 @@
 # RTS
-https://orionrtsaftersale.online/
